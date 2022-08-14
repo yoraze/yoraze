@@ -1,1 +1,1 @@
-![Konata](https://s01.geekpic.net/di-PKHRCD.jpeg)
+![](https://abstract.s-ul.eu/rFQsSjGn)
