@@ -1,1 +1,7 @@
-![](https://abstract.s-ul.eu/rFQsSjGn)
+Привет!
+
+Я очень люблю чай и PHP.
+
+90% репозиториев приватные, поскольку за них мне заплатили.
+
+![](https://abstract.s-ul.eu/oZP0DrjL)
